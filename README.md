@@ -1,0 +1,6 @@
+- 👋 Hi, I’m IB'S
+- 👀 I fucking hate rockstar
+- 🌱 I’m currently learning how not to kill myself looking at their code
+- 💞️ I’m looking to collaborate on making shitty patches for gta5
+- 😄 Pronouns: shits/farts
+- ⚡ Fun fact: kill yourself Incredibuild
